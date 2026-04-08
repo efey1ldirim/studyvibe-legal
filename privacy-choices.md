@@ -18,6 +18,6 @@ You may request:
 
 To submit a request, contact:
 
-`support@studyvibe.app`
+`efeyildirimco@gmail.com`
 
 Include the email associated with your account and your request details.

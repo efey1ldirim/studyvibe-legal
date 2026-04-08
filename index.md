@@ -49,7 +49,7 @@ Depending on your region, you may have rights to:
 - Request deletion of your data
 - Object to or restrict certain processing
 
-To make a privacy request, contact us at: `support@studyvibe.app`
+To make a privacy request, contact us at: `efeyildirimco@gmail.com`
 
 ## 6. Children's Privacy
 
@@ -67,4 +67,4 @@ We may update this Privacy Policy from time to time. We will update the "Last up
 
 If you have questions about this Privacy Policy, contact:
 
-`support@studyvibe.app`
+`efeyildirimco@gmail.com`
